@@ -1,6 +1,6 @@
 # 🎁 Epic 免费游戏清单（中文）| Epic Free Games
 
-**当前可领 9 款 · 总价值 $178** — 每天自动更新，全部官方领取链接，领了永久入库。
+**当前可领 10 款 · 总价值 $188** — 每天自动更新，全部官方领取链接，领了永久入库。
 
 ## 📲 实时推送（不错过截止时间）
 👉 **白嫖线报局 https://t.me/FreeLootDailyHub** — Epic 每周四上新限免，频道第一时间推送。
@@ -11,6 +11,7 @@
 |---|---|---|---|---|
 | Idle Champions of the Forgotten Realms: Morte's Renown Pack Giveaway | $100.00 | DLC | 2026-11-12 23:59:00 | [领取](https://www.gamerpower.com/open/idle-champions-of-the-forgotten-realms-morte-s-renown-pack-giveaway) |
 | Flotsam (Epic Games) Giveaway | $24.99 | Game | 2026-11-12 23:59:00 | [领取](https://www.gamerpower.com/open/flotsam-epic-games-giveaway) |
+| GMH - Good Morning Human (Epic Games) Giveaways | $9.99 | Game | 2026-11-08 23:59:00 | [领取](https://www.gamerpower.com/open/gmh-good-morning-human-epic-games-giveaways) |
 | Highway Driving (Epic Games) Giveaway | $9.99 | Game | 2026-11-08 23:59:00 | [领取](https://www.gamerpower.com/open/highway-driving-epic-games-giveaway) |
 | Horse Racing (Epic Games) Giveaway | $9.99 | Game | 2026-11-08 23:59:00 | [领取](https://www.gamerpower.com/open/horse-racing-epic-games-giveaway) |
 | Gladiator: Blades of Fury (Epic Games) Giveaway | $9.99 | Game | 2026-11-08 23:59:00 | [领取](https://www.gamerpower.com/open/gladiator-blades-of-fury-epic-games-giveaway) |
